@@ -1,4 +1,5 @@
 # Giang Minh Đức
 # 22810310182
 Ket qua
-![10a1dd00-035a-4b1f-a80d-9d649deb8a9c](https://github.com/user-attachments/assets/91cee8ff-6749-442d-9a56-8b2f9c31bf3f)
+![3eaa6267-afe1-482a-8ee8-91b2270e5153](https://github.com/user-attachments/assets/f308ca13-1172-4173-8147-74a08e18b92a)
+
